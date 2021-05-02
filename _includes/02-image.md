@@ -1,1 +1,1 @@
-![Twobahrão](https://drive.google.com/file/d/1SgEJj0ZHNqo0Z9IHMZJRfQDX0QuN-XwT/view?usp=sharing)
+![Twobahrão](https://uploaddeimagens.com.br/images/003/222/985/full/Sharksy.png?1619975547)
